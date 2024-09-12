@@ -4,3 +4,5 @@ i wanted to make something harry potter or percy jackson themed that wasn't all 
 screenshot - 
 
 <img width="713" alt="image" src="https://github.com/user-attachments/assets/9fe12ef6-c35a-48e7-b47e-f388c30b71d7">
+
+find it on [printables](https://www.printables.com/model/1005187-deathly-hallows-pendant)
